@@ -1,3 +1,3 @@
 # Hi-India
 New Idea !!!!
-I am beginer to creat new idea
+I am beginer to create new idea
